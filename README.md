@@ -8,7 +8,7 @@
  my knowledge to an increasingly
  increasingly high and specialised level.
 
- Available for Coordination and Technical Support Service
+ Available for Coordination and Technical Support Service Technician
 - 📫 How to reach me  How to reach me ... +393291624607 
 c.dalise@live.com
 - 😄 Pronouns: aerialoperator
